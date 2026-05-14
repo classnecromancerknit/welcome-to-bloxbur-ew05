@@ -1,4 +1,4 @@
-#  
+#  welcome to bloxburg hidden Scripts is the best welcome to bloxburg Script, featuring anti-ban and unlimited stamina. Safe and powerful for all your
 
 
 
